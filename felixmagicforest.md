@@ -1,5 +1,7 @@
 ## Felix and the Magic Forest
 
+![360_F_564415456_KJsybeKeyyFteMfweF3F5lttQGqwlmJQ](https://github.com/user-attachments/assets/ccd9f0dc-fc7e-44bd-bbe0-a8d0121db9ca)
+
 Once upon a time in a lush, green forest, there lived a little fox named Felix. Felix had bright orange fur, a bushy tail, and the most curious eyes anyone had ever seen. He loved exploring the forest, always eager to discover new places and meet new friends.
 
 One sunny morning, as Felix wandered near the sparkling river that ran through the forest, he heard a faint, sorrowful sound. Following the sound, he came upon a small, bluebird named Bella. Bella was perched on a low branch, looking quite upset.
@@ -20,6 +22,8 @@ Toby, who was wise and knew the forest well, thought for a moment. “Yes, I bel
 
 Felix and Bella thanked Toby and continued their journey. They climbed over the hill and, as they descended, they saw a grove of the most colorful flowering trees they had ever seen. Bella’s eyes widened with joy.
 
+![Watercolour-Painting-Of-A-Magical-Grove-Cartoon-Style-Intricate-Details-74275674-1](https://github.com/user-attachments/assets/313bdc46-751a-4425-bf8b-c450d889cc13)
+
 “This is it!” Bella exclaimed, fluttering excitedly. “This is where I live!”
 
 The grove was bustling with the chirping and fluttering of Bella’s bird friends. Bella’s family flew down to greet her with happy songs and flapping wings.
@@ -28,10 +32,12 @@ The grove was bustling with the chirping and fluttering of Bella’s bird friend
 
 Felix smiled. “I’m glad I could help. It was an adventure!”
 
+![download](https://github.com/user-attachments/assets/d3be82fc-2947-46bf-ba2a-269097d90720)
+
 As Felix started to head back home, Bella’s family invited him to stay for a feast of seeds and berries. Felix enjoyed the feast and the lively company of Bella’s friends. When it was time to leave, Bella’s family gave Felix a beautiful feather as a token of their appreciation.
 
 Felix returned to his cozy den, feeling proud and happy. He knew that even the smallest of creatures could make a big difference, and that helping a friend in need was the greatest adventure of all.
 
 And so, in the heart of the forest, Felix the fox went to sleep that night with a warm heart and a happy smile, knowing that he had made a new friend and had a wonderful story to tell.
 
-The end.
+### The end.
